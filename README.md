@@ -1,6 +1,6 @@
 # *Carissa macrocarpa*
 
-A traditional food plant in Africa, this little-known fruit has potential to improve nutrition, **boost food security**, foster rural development, and support sustainable landcare.
+A traditional food plant in Africa, this little-known fruit has potential to improve nutrition, **boost food security**, foster rural development, and support *sustainable* landcare.
 
 ![Image of natal plum](https://upload.wikimedia.org/wikipedia/commons/thumb/1/17/Starr_010820-0009_Carissa_macrocarpa.jpg/1280px-Starr_010820-0009_Carissa_macrocarpa.jpg)
 
